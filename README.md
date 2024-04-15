@@ -1,1 +1,1 @@
-# proj-de-vida-ALURA
+# atividades-prof-sandra
